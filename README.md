@@ -1,8 +1,8 @@
 # 💫 About Me: 
 <img width="734" height="241" alt="Untitled-1 (31)" src="https://github.com/user-attachments/assets/d4c6f959-9f9b-4c1d-b77d-7051e78863af" />
 
-Leaning Ai & Cyber sect<br> And ask me on my ig account <br>@sirtoax<br>    Also, I love to share and make new ideas :3
-
+Leaning Ai & Cyber sect<br> And ask me on my ig account <br>@xsayoa1f<br>    Also, I love to share and make new ideas :3
+«أنا أمشي وحيداً، لأن الطريق إلى القمة لا يتسع لشخصين».
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/@sirtoax) 
